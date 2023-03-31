@@ -1,0 +1,5 @@
+L'ingénieur a un métier et un rôle bizarre dans le monde. Il est a la fois une personne qui dirige et une personne qui subit. Il fait l'interface entre les directions données par les gens en pouvoir mais a une influence immense sur ce qui résultera du projet. On dit souvent qu'il toute des solutions aux problèmes qu'ils trouvent ou qu'on lui donne. Il est le cerveau dont on fait faire des calculs, des plans, des projets sans souvent pouvoir être LE responsable du bâteau.
+
+John est un de ces gens qui réussissent a répondre aux problèmes des gens aux pouvoirs. C'est un homme qui a travaillé dur pour ce poste, il venait d'une famille qui s'était enrichi dans la fabrication de machines pour l'extraction des minéraux dans les mines. C'était un domaine en plien expansion mais avec une concurrence rude qui donnait beaucoup de difficultés a son père.
+
+Son père l'avait inscrit dans une très bonnne école de Manchester où il avait lutté pour avoir son diplôme. Il avait eu de quoi se loger, de quoi se nourrir, mais n'avait pas le temps de vraiment en profiter vu la charge de travail qu'il avait.

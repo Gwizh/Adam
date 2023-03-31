@@ -1,0 +1,5 @@
+Adam fût une homme obnubilé par la lumière mais se perdait dans son éclat. Il amalgamait toutes les longueurs d'onde projetées par le filament incandescant en un seul rayon uni qui faisait briller ses yeux. Cette lumière montrait le monde sous un autre jour mais masquait par les ombres ou l'éblouissement crées d'autres flammes de ce monde. 
+
+Adam s'élançait dans cette direction qu'il voyait comme universelle, emportant tout flot semblables mais fracassant les autres. Bientôt, après un zoom sur les moeurs, ces mêmes flots proches deviendront des freins terribles. Des ombres sur un écran de plus en plus clair. Des étoiles apparaissant petit à petit dans la nuit qui s'assombrit.
+
+Il n'y a progrès qu'en embrassant toutes les luttes. Nul concept, nulle technologie, nulle utopie ne peut être solution à toutes les dominations. Ne laissons pas le monde dans le noir mais ne laissons pas non plus la lumière nous faire de l'ombre. Que chacun de nous devienne un brasier brulant d'une couleur unique. Luttons pour tout le monde tout en luttant pour nous même. Mais quoi qu'il arrive, luttons; corps et âme, luttons !
